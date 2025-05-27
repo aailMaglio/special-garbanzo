@@ -1,2 +1,2 @@
 # special-garbanzo
-proyecto dual, pagina web con un jueguito de un garbanzo
+SE FUE TODO A LA VEWRGAS
